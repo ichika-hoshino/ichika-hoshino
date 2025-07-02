@@ -1,3 +1,3 @@
 [autor](https://www.tumblr.com/frurin/775135478880092160/monitoring-ichika-hoshino-layouts-i-loved?source=share)
 
-![17514940554503089291138361654754](https://github.com/user-attachments/assets/f980a4f0-1935-41d6-a32b-9e32dd41c280)
+![1000073491](https://github.com/user-attachments/assets/eb284d30-7fa4-4ee0-a42c-4b79faa10186)
